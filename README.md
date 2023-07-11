@@ -7,7 +7,7 @@
 
 - 🔭We are currently working on [LP Gas Managemnt Project](https://lpg.linksensi.com/)
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with us:</h3>
 <p align="left">
 </p>
 
