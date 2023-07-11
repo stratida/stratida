@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Us:
 At Stratida, we pride ourselves on being a full-service digital agency that prioritizes our clients and their needs above all else. We understand that investing in our services is a big decision, and we strive to ensure that our clients get a return on their investment. Our team of experts has years of experience in providing top-notch programming and tech services, as well as exceptional graphics and design work. We also have a dedicated team of specialists in video and animation, ensuring that we can provide a complete range of digital solutions for our clients. We are passionate about staying up-to-date with the latest technology and techniques, and we are committed to delivering the highest quality results for our clients. Whether you are looking to improve your online presence, enhance your brand, or increase your sales, we have the skills and expertise to help you achieve your goals. At Stratida, we are dedicated to providing exceptional service and delivering results that exceed our clients' expectations. Contact us today to learn more about how we can help your business succeed in the digital world.
 
 
